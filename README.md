@@ -1,0 +1,2 @@
+# premium-edge-bevel-leather-001-leather-edge-beveling-burnis
+Stop guessing your bevel angles and burnish pressure — this Notion hub turns your messy notes and scattered videos into a repeatable leathercraft system.  The Leather Edge Beveling &amp; Burnish Craft Hub eliminates the chaos of tracking techniques across platforms. It centralizes your best practices, project notes, and resource libraries into one orga
